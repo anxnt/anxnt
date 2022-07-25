@@ -2,4 +2,4 @@
 - 👀 I’m interested in 3d arts and coding
 - 🌱 I’m currently learning blockchain development
 - 📫 You can find me on deso at https://diamondapp.com/u/anxnt
-- 🔥 Also on twiiter at @anant715
+- 🔥 Also on twitter at @anant715
